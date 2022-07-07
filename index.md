@@ -41,7 +41,7 @@ A smattering of Anime, like Akira and Ghost in the Shell
 Red Dwarf (up to series 7, then forget it)
 
 ### Favourite app/website
--	I live on Twitter 
+-	I live on [Twitter](https://twitter.com/Ox1Digital) 
 -	Guardian for the news 
 -	WhatsApp for family and friends 
 -	Slack for networking at work
