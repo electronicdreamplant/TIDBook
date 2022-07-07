@@ -51,6 +51,7 @@ Red Dwarf (up to series 7, then forget it)
 -	IMDb for film trivia (and proving I was right about who was in that film) 
 -	Spotify for podcasts and my tragic music tastes
 -	Medium for blogging
+-	[GitHub](https://github.com/electronicdreamplant) for playing around with code
 -	More recently, TikTok (it’s addictive)
 -	Threes -  the only game I can tolerate
 
