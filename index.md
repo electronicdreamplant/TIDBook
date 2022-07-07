@@ -18,15 +18,27 @@ Tolpuddle, since 2020 (hardly a town, though. More an accidental gathering of ho
 ## Likes and Interests
 
 ### Interests/Hobbies
-[Photography](https://www.flickr.com/photos/neillawrencephotography/), keeping fit, gardening/growing stuff I can eat, exploring Dorset, doing DIY badly, failing to properly learn to code year after year, a bit of [blogging about work and life](https://ox1digital.medium.com/)
+- [Photography](https://www.flickr.com/photos/neillawrencephotography/) - Keeping fit 
+- Gardening/growing stuff I can eat 
+- Exploring Dorset
+- Doing DIY badly 
+- Failing to properly learn to code year after year
+- A bit of [blogging about work and life](https://ox1digital.medium.com/)
+
 ### Music
-Techno/trance/IDM. Tragically locked into the 1990s really…
+Techno/trance/IDM. 
+
+Tragically locked into the 1990s really…
 (I won’t embarrass us both by listing acts you’ve never heard of)
 ### TV/Films
 Everything written by Aaron Sorkin, especially the West Wing
+
 Intelligent Sci-Fi films like Contact, Arrival, Dune, Bladerunner, Interstellar, Moon, Silent Running, Looper, Gattaca
+
 A smattering of Anime, like Akira and Ghost in the Shell
+
 Red Dwarf (up to series 7, then forget it)
+
 ### Favourite app/website
 -	I live on Twitter 
 -	Guardian for the news 
