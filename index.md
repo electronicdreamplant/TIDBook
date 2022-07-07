@@ -18,7 +18,8 @@ Tolpuddle, since 2020 (hardly a town, though. More an accidental gathering of ho
 ## Likes and Interests
 
 ### Interests/Hobbies
-- [Photography](https://www.flickr.com/photos/neillawrencephotography/) - Keeping fit 
+- [Photography](https://www.flickr.com/photos/neillawrencephotography/) 
+- Keeping fit 
 - Gardening/growing stuff I can eat 
 - Exploring Dorset
 - Doing DIY badly 
